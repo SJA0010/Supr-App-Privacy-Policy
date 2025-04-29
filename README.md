@@ -1,5 +1,5 @@
 # Supr-App-Privacy-Policy
-Effective Date: [Insert Date]
+Effective Date: 30 April 2025
 
 Omnivolve Software Company built the SuprApp as a commercial application. This SERVICE is provided by Omnivolve Software Company and is intended for use as is.
 
