@@ -47,6 +47,6 @@ We may update our Privacy Policy from time to time. You are advised to review th
 8. Contact Us
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at:
 
-📧 Email: omnivolve.tech@gmail.com
+📧 Email: MSJA010@gmail.com
 🌐 Company: Omnivolve Software Company
 
